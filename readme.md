@@ -1,3 +1,3 @@
 #demo 
 
-some districtiopin 
+some distriction 
